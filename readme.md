@@ -1,1 +1,0 @@
-oj ttu było dziężko
